@@ -3,6 +3,6 @@ My name is rin!,,, |
   | minor/3teen |
   | c+h is always welcome!!! |
   | Superiority complex /srs |
-  | am I a bad person? yes. Do i care? unfortunately not,,<img width="439" height="95" alt="image" src="https://github.com/user-attachments/assets/ea62a8e6-eae9-4c54-a055-a6f0bd765ba4" />
+  | am I really that bad?,,<img width="439" height="95" alt="image" src="https://github.com/user-attachments/assets/ea62a8e6-eae9-4c54-a055-a6f0bd765ba4" />
   
    <img width="371" height="371" alt="Screenshot 2025-12-08 7 19 27 PM" src="https://github.com/user-attachments/assets/ced1091b-89e0-428f-b5b9-6e0b9578f8ff" />
