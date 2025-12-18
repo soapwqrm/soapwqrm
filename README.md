@@ -7,5 +7,5 @@ My name is rin!,,, |
   
    <img width="371" height="371" alt="Screenshot 2025-12-08 7 19 27 PM" src="https://github.com/user-attachments/assets/ced1091b-89e0-428f-b5b9-6e0b9578f8ff" />
                 
-![0gdXZn8](https://github.com/user-attachments/assets/4af2ec21-dcf7-46d3-be36-feebc598bcb2)
+
 
