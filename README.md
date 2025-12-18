@@ -1,6 +1,6 @@
 ## hey guys...
 
-My name is soap!,,, |
+My name is rin!,,, |
   | minor/3teen |
   | c+h is always welcome!!! |
   | i'm not very good at chatting,,<img width="439" height="95" alt="image" src="https://github.com/user-attachments/assets/ea62a8e6-eae9-4c54-a055-a6f0bd765ba4" />
