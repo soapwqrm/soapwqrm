@@ -1,4 +1,5 @@
 ## hey guys...
+<img width="435" height="606" alt="Screenshot 2025-12-17 7 12 31 PM" src="https://github.com/user-attachments/assets/5cefadc5-1f1d-4d0d-87b1-f1bcba47f0cc" />
 
 <!--
 **soapwqrm/soapwqrm** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
