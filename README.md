@@ -2,8 +2,8 @@
 My name is rin!,,, |
   | 18+ |
   | c+h is always welcome!!! |
-  | Fyodor kinnie,,, ok?,,, |
-  | am I really that bad?,,<img width="389" height="44" alt="image" src="https://github.com/user-attachments/assets/ace63e0b-34d1-4c44-abcb-c7dc7791062e" />
+  | BSD, Danganronpa, KNY, + Life series <3  |
+  | but we still dial 911. <img width="389" height="44" alt="image" src="https://github.com/user-attachments/assets/ace63e0b-34d1-4c44-abcb-c7dc7791062e" />
   
    
                 
