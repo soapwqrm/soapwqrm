@@ -3,7 +3,7 @@ My name is rin!,,, |
   | 18+ |
   | c+h is always welcome!!! |
   | Fyodor kinnie,,, ok?,,, |
-  | am I really that bad?,,<img width="439" height="95" alt="image" src="https://github.com/user-attachments/assets/ea62a8e6-eae9-4c54-a055-a6f0bd765ba4" />
+  | am I really that bad?,,<img width="389" height="44" alt="image" src="https://github.com/user-attachments/assets/ace63e0b-34d1-4c44-abcb-c7dc7791062e" />
   
    
                 
