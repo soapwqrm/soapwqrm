@@ -1,6 +1,6 @@
 ## “Pain and suffering are always inevitable for a large intelligence and a deep heart. The really great men must, I think, have great sadness on earth,”
 My name is rin!,,, |
-  | minor |
+  | 18+ |
   | c+h is always welcome!!! |
   | Fyodor kinnie,,, ok?,,, |
   | am I really that bad?,,<img width="439" height="95" alt="image" src="https://github.com/user-attachments/assets/ea62a8e6-eae9-4c54-a055-a6f0bd765ba4" />
