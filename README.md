@@ -1,5 +1,7 @@
 ## “Pain and suffering are always inevitable for a large intelligence and a deep heart. The really great men must, I think, have great sadness on earth,”
 
-<img width="289" height="283" alt="image" src="https://github.com/user-attachments/assets/d982c7e1-3838-4916-a025-4632b7d528e7" /><img width="289" height="283" alt="image" src="https://github.com/user-attachments/assets/022aabf5-dd84-45b8-a80c-0a9ffb7ced52" />
+![68747470733a2f2f66696c652e67617264656e2f5a753435646b5059757a6c76776878582f74656e6f72253230283131292e676966](https://github.com/user-attachments/assets/2952bd78-139a-496c-8f93-10f452b73da0)![68747470733a2f2f726561646d652d747970696e672d7376672e6865726f6b756170702e636f6d3f666f6e743d426f6c64267765696768743d3130302673697a653d31302670617573653d31303026636f6c6f723d303030303030266261636b67726f756e643d4646464646462663656e7465723d747275](https://github.com/user-attachments/assets/46367916-f541-4056-8541-b369416f0728)
+
+
 
 
