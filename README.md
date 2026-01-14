@@ -3,4 +3,3 @@
 
 she , her . >18 . fag . fujoshi,,,, . c+h HEAVILY encouraged . I never left the desert . danganronpa, bsd, life series, kny,,, etc     
 fame is a gun and I point it blind, crash and burn baby swallow it dry . <img width="406" height="23" alt="image" src="https://github.com/user-attachments/assets/8678aebf-2fa0-406a-a63c-0a6b44311973" />
-people always say they see themselves in they're favourite characters... like, fym?? my least favourite character is the one most like me. Okay, maybe I should work on that.
