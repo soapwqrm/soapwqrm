@@ -5,3 +5,4 @@ she , her . >18 . fag . fujoshi,,,, . c+h HEAVILY encouraged . I never left the 
 fame is a gun and I point it blind, crash and burn baby swallow it dry . <img width="406" height="23" alt="image" src="https://github.com/user-attachments/assets/8678aebf-2fa0-406a-a63c-0a6b44311973" />
 
 <img width="257" height="212" alt="image" src="https://github.com/user-attachments/assets/b180d0ea-7b49-430e-a7d3-c3766857579a" />
+day 2 of sitting with them while they read one piece...
