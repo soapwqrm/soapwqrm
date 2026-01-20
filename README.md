@@ -4,3 +4,4 @@ I like things other than p5, I promise.
 ![GK-YQm8WYAAZGqu](https://github.com/user-attachments/assets/f28668b3-3a19-483c-b5d5-8d5f2abb8899)
 
 ![i-made-grian-gifs-v0-nkq4lpp3ahue1](https://github.com/user-attachments/assets/ffe37b29-215b-4718-b672-5697361d7d03)
+see? it's Grian.
