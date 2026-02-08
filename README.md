@@ -4,7 +4,3 @@
 
 
 
-[
-](https://soapwqrm.atabook.org/)
-
-
